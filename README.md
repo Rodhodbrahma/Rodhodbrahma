@@ -1,4 +1,4 @@
-![Uploading Black Minimalist Corporate Professional Profile LinkedIn Banner.png…]()
+![Black Minimalist Corporate Professional Profile LinkedIn Banner](https://github.com/Rodhodbrahma/Rodhodbrahma/assets/134644348/41a00b75-8293-4ae9-8fb0-f19e89872d09)
 
 
 ### Hi there 👋
