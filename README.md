@@ -1,3 +1,6 @@
+![Uploading Black Minimalist Corporate Professional Profile LinkedIn Banner.png…]()
+
+
 ### Hi there 👋
 
 <!--
