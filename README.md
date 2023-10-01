@@ -32,4 +32,4 @@ Here are some ideas to get you started:
 <img src="https://img.shields.io/badge/Music-Singing-Red">
 
 ## My Contact
-<a href="www.rodhodbrahma007@gmail.com"><img src="https://img.shields.io/badge/Social-Gmail-orange"></a>
+<a href="https://www.rodhodbrahma007@gmail.com"><img src="https://img.shields.io/badge/Social-Gmail-orange"></a>
